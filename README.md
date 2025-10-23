@@ -1,1 +1,0 @@
-# Tugas_CV_Dhiwa
